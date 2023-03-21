@@ -1,5 +1,5 @@
 ### Hi there 👋
-![](https://memegenerator.net/img/instances/81950552/wow-such-empty.jpg)
+![](https://www.meme-arsenal.com/memes/e0ff869187796f8a8a24146b92363adb.jpg)
 <!--
 **jmolla31/jmolla31** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
